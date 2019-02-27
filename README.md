@@ -843,6 +843,8 @@ Q群:554239288
 
 [2017杭州各区学区划分大汇总](https://www.kan3721.com/news/show-7932.html)
 
+[2017上城区学区划分]（http://news.house365.com/hzzt/20170414/shchxuequ/）
+
 ### 3.<a name="小学排名">小学排名</a>
 [2017杭州公办小学排名,心仪的小学上榜了吗？](https://www.19lou.com/forum-263-thread-63251498282849396-1-1.html)
 
